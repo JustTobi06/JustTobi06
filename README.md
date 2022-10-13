@@ -3,7 +3,7 @@
 
 ![](https://media.tenor.com/J-JoCq1tD8oAAAAC/say-my-name-meme-say-my-name.gif)
 - ⚡ Fun fact **Nothing funny here.**
-![]![image](https://user-images.githubusercontent.com/115136291/195524634-f2b3d2a2-2962-4aa3-9324-27e9d937904e.png)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
